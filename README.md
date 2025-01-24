@@ -1,4 +1,4 @@
-Hi, Please refer my other profile @mavwolverine. Thanks
+Hi, Please refer my other profile [@mavwolverine](https://github.com/mavwolverine). Thanks
 <!--
 - 👋 Hi, I’m @virajkanwade
 - 👀 I’m interested in ...
